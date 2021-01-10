@@ -10,7 +10,9 @@ In this journey, I have been able to develop essential skills in thinking, plann
 - Very open minded and always willing to learn.
 
 You can check my repositories here at GitHub or else:
+
 https://cargocollective.com/pcarvalho
+
 https://www.linkedin.com/in/patcarv/
 
 Regards,
