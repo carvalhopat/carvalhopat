@@ -9,7 +9,7 @@ In this journey, I have been able to develop essential skills in thinking, plann
 - I value team work and interdisciplinarity in order to find better solutions.
 - Very open minded and always willing to learn.
 
-You can check my repositories here at GitHub or else:
+Check my portfolio or reach me:
 
 https://cargocollective.com/pcarvalho
 
