@@ -1,4 +1,4 @@
-Hi there! I made my way into software development after obtaining a degree in graphic design.
+Hi there!
 
 In this journey, I have been able to develop essential skills in thinking, planning and managing projects. Through my work experience, I realized that a user-centered way of projecting is really powerful and effective when it comes to improving people's lives. With a well thought-out strategy, it becomes transformative, empowering and capable of changing society. Besides making my job really meaningful, this fact pushes me forward and allows me to work with different perspectives that are out my comfort zone. 
 
