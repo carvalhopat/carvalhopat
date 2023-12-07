@@ -4,9 +4,6 @@ https://carvalhopatricia.vercel.app/
 
 https://www.linkedin.com/in/patcarv/
 
-Regards,
-Patrícia.
-
 
 <!--
 **carvalhopat/carvalhopat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
